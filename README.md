@@ -22,4 +22,4 @@ Teaching assistant in Mathematics and Statistics at TAMUCC since Spring 2025: ca
 
 ## Contact
 
-[LinkedIn](https://www.linkedin.com/in/mahidharreddypatukuri/) or mahidharreddypatukuri@gmail.com
+[LinkedIn](https://www.linkedin.com/in/mahidharreddypatukuri/)
